@@ -6,7 +6,7 @@
 # PART ONE: THE SPEECH
 ## *"Nothing Is Everything"*
 ### *A 500-Word Masterpiece*
-
+ 
 ---
 
 *(Walk to the stage. Stand still. Say nothing. Wait 10 full seconds. Look at every judge. Then begin.)*
